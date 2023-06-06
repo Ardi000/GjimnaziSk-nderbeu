@@ -1,1 +1,1 @@
-# GjimnaziSk-nderbeu
+# GjimnaziSkënderbeu
